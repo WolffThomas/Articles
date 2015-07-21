@@ -7,9 +7,19 @@
 
 ![montagne](http://www.vieillegrille.fr/show_image.php?id=816)
 
-Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi. Je trouve ce paysage sombre. 
+Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi, elle soupire. Je trouve ce paysage sombre et inquiétant. Pourquoi ajouter un commentaire?
 
-## 
+## Ni d'accord, ni pas d'accord
+
+> "C'est beau...", chuchotte t-elle. "C'est pas beau, c'est vraiment inquiétant comme paysage..."
+
+> "Et si on allait au musée, c'est super intéressant et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
+
+> "J'ai l'impression que ce que tu as fais là n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
+
+> "Je la trouve très intelligente et pertinente dans ce qu'elle dit." "Tout à fait d'accord". 
+
+## Invitations
 
 
 
