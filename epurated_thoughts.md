@@ -8,7 +8,7 @@
 
 ![montagne](http://www.vieillegrille.fr/show_image.php?id=816)
 
-Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi, elle soupire. Je trouve ce paysage sombre et inquiétant. Pourquoi ajouter un commentaire?
+Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. Je trouve ce paysage sombre et inquiétant. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi, un soupir de détente s'échape... 
 
 ## Ni d'accord, ni pas d'accord
 
