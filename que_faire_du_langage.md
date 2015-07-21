@@ -24,9 +24,7 @@ Dans tous les exemples çi dessus, j'ai illustré des débats relatifs à l'util
 
 Il me semble très simple de se perdre dans un débat lorsque nous utilisons des adjectifs. En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
 
-Jouons un peu: un sondage récédent démontre que *plus de 80% de français se considèrent comme supérieurs, et même plus modestes, que la moyenne*. Qu'est-ce que cela vous inspire? Qu'en pensez vous?
-
-## Actes essentiels
+Jouons un peu: un sondage récédent démontre que *plus de 80% de français se considèrent comme supérieurs, et même plus modestes, que la moyenne*. Qu'est-ce que cela vous inspire? Qu'allez vous en faire?
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
@@ -38,9 +36,11 @@ Il me semble que:
 * *ça va marcher* signifie que tu supposes que ça va marcher 
 * le bruit du vent dans les arbres n'a pas de nom, à moins que je le nomme
 
+##Actes essentiels 
+
 **Est-ce que tu ne sous-entendrais pas qu'il faille abandonner le débat, les échanges, au détriment d'actes plus essentiels?**
 
-Tout dépend de cet *essentiel* que tu souhaites. 
+Tout dépend de cet **essentiel** que tu souhaites. 
 C'est un truc des tripes, qui passe par le coeur et la tête. 
 Je trouve bon de parfois de se poser de ce qui est essentiel pour moi, autant que de naturellement le ressentir au long de la journée. 
 Tendresse, repos, qualité des relations, enthousiasme partagé, du temps pour te retrouver, ... 
@@ -49,7 +49,7 @@ Ou alors si ton fils vient te voir et dit "papa, papa j'ai trouvé des fourmis v
 ## Fermeture
 
 > Je suppose que tout ce que je pense et dis est supposition.
-> **Du moins, j'espère m'en rendre compte.** 
+> Du moins, j'espère m'en rendre compte.
 > Et je le suppose de même pour les autres. 
 > Je suppose aussi l'agitation des humains à tenter de définir le vrai du faux.
 > Ce faisant, je prends la résolution d'abandonner tout agitation inutile pour me vouer à des actes essentiels.
