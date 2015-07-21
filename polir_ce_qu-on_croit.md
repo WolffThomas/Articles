@@ -31,22 +31,14 @@ Jouons un peu: un sondage récédent démontre que *plus de 80% de français se 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
 Il me semble que: 
-"je suis frigorifiée" signifie qu'elle est frigorifiée, même si je ne le suis pas 
-"tu es belle" signifie que je te trouve belle
-"dieu est" signifie que tu supposes dieu
-"ça va marcher" signifie que tu supposes que ça va marcher 
+* "je suis frigorifiée" signifie qu'elle est frigorifiée, même si je ne le suis pas 
+* "tu es belle" signifie que je te trouve belle
+* "dieu est" signifie que tu supposes dieu
+* "ça va marcher" signifie que tu supposes que ça va marcher 
+* le bruit du vent dans les arbres n'a pas de nom, à moins que je le nomme
 
 
 
-
-
-
-
-
-Plutôt que d'être d'accord ou pas d'accord, je peux aussi choisir de vouer mon temps à d'autres actes.
-
-
- 
 
 > Je suppose que tout ce que je pense et dis est supposition.
 > **Du moins, j'espère m'en rendre compte.** 
