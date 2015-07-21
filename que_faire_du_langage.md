@@ -44,7 +44,7 @@ Les débats, les échanges peuvent être des actes essentiels dans de nombreuses
 
 Et pourtant... Pour te donner à nouveau un exemple tous les débats, échanges, dans un groupe ne sont pas **essentiels** pour faire avancer un projet collectif; souvenons nous de tous ces individus qui prennent la parole plus que nécessaire. 
 
-> Minuit la vraie luminière, l'aube n'est pas claire. *Hokyozanmai*
+> Minuit la vraie lumière, l'aube n'est pas claire. **Hokyozanmai**
 
 ## Fermeture
 
