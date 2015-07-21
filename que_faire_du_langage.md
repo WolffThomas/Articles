@@ -24,8 +24,6 @@ Dans tous les exemples çi dessus, j'ai illustré des débats relatifs à l'util
 
 Il me semble très simple de se perdre dans un débat lorsque nous utilisons des adjectifs. En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
 
-Jouons un peu: un sondage récédent démontre que *plus de 80% de français se considèrent comme supérieurs, et même plus modestes, que la moyenne*. Qu'est-ce que cela vous inspire? Qu'allez vous en faire?
-
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
 Il me semble que: 
