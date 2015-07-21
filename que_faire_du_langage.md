@@ -32,10 +32,15 @@ Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le ra
 
 Il me semble que: 
 * "je suis frigorifiée" signifie qu'elle est frigorifiée, même si je ne le suis pas 
+* "acte essentiel" signifie que je suppose un acte essentiel
 * "tu es belle" signifie que je te trouve belle
 * "dieu est" signifie que tu supposes dieu
 * "ça va marcher" signifie que tu supposes que ça va marcher 
 * le bruit du vent dans les arbres n'a pas de nom, à moins que je le nomme
+
+
+
+
 
 
 
