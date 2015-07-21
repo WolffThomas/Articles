@@ -1,13 +1,15 @@
 > Je suppose que tout ce que je pense et dis est supposition. 
-> Je suppose aussi l'agitation des humains à tenter de définir le vrai du faux
-> Ce faisant, je prends la résolution d'abandonner tout agitation inutile pour me vouer à des actes essentiels
+> Je suppose aussi l'agitation des humains à tenter de définir le vrai du faux.
+> Ce faisant, je prends la résolution d'abandonner tout agitation inutile pour me vouer à des actes essentiels.
 > Qu'y a t-il de plus simple que cela? 
 
 ## La montagne
 
 ![montagne](http://www.vieillegrille.fr/show_image.php?id=816)
 
-Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi. 
+Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi. Je trouve ce paysage sombre. 
+
+
 
 
 
