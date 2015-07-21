@@ -31,19 +31,22 @@ Jouons un peu: un sondage récédent démontre que *plus de 80% de français se 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
 Il me semble que: 
-* "je suis frigorifiée" signifie qu'elle est frigorifiée, même si je ne le suis pas 
-* "acte essentiel" signifie que je suppose un acte essentiel
-* "tu es belle" signifie que je te trouve belle
-* "dieu est" signifie que tu supposes dieu
-* "ça va marcher" signifie que tu supposes que ça va marcher 
+* *je suis frigorifiée* signifie qu'elle est frigorifiée, même si je ne le suis pas 
+* *acte essentiel* signifie que je suppose un acte essentiel
+* *tu es belle* signifie que je te trouve belle
+* *dieu est* signifie que tu supposes dieu
+* *ça va marcher* signifie que tu supposes que ça va marcher 
 * le bruit du vent dans les arbres n'a pas de nom, à moins que je le nomme
 
+**Est-ce que tu ne sous-entendrais pas qu'il faille abandonner le débat, les échanges, au détriment d'actes plus essentiels?**
 
+Non. Par exemple, là je trouverai super qu'on échanges ce que c'est pour toi des "actes essentiels". Rigoler avec des copains s'ils me racontent une blague que je trouve drôle. Mais lorsqu'on me dit "j'ai froid" et que je réponds "oui mais il fait le radiateur est sur 30°C" je ne trouve pas ma réaction adaptée. Mais adaptée à quoi, essentiel à quoi, pour qui,... C'est de ça que je parlerais bien avec toi. 
 
+Mon invitation c'est d'enlever, d'épurer, plutôt que de rajouer une couche. 
+Pas besoin de "trouver ça drôle" pour rire, pas besoin d'explication sur la géothermie pour t'envelopper sur une couverture si tu as froid. Pas besoin d'abandonner les discussions si tu philosophes avec tes copains, au contraire c'est sûrement très intéressant de te prendre des instants juste pour toi où tu vas réfléchir, épurer ta parole, ton lanage... pour par la suite faire monter la conversation. Mais si ton fils te dis "papa j'ai trouvé une fourmi orange", si tu veux passer un bon moment avec lui ou quelque soit ce qui te tient à coeur, vas peut-être voir plutôt voir ce qu'il veut te montrer plutôt que de lui dire "les fourmis orange ça n'existe pas". 
+En plus il se pourrait qu'on soit étonné! 
 
-
-
-
+## Fermeture
 
 > Je suppose que tout ce que je pense et dis est supposition.
 > **Du moins, j'espère m'en rendre compte.** 
