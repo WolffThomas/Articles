@@ -51,4 +51,4 @@ Ou alors si ton fils vient te voir et dit "papa, papa j'ai trouvé des fourmis v
 > Et je le suppose de même pour les autres. 
 > Je suppose aussi l'agitation des humains à tenter de définir le vrai du faux.
 > Ce faisant, je prends la résolution d'abandonner tout agitation inutile pour me vouer à des actes essentiels.
-> Qu'y a t-il de plus simple que cela? 
+> Qu'y a t-il de plus simple que cela?
