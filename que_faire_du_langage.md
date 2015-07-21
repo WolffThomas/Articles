@@ -8,7 +8,7 @@
 
 ![montagne](http://www.vieillegrille.fr/show_image.php?id=816)
 
-Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleu sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. Je trouve ce paysage sombre et inquiétant. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi, un soupir de détente s'échape... 
+Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pierres à perte de vue. Devant nous, un étang aux eaux bleues sombres. Pas de chant d'oiseau. Pas d'arbre. Le vent souffle par raffale. Nous sommes blottis l'un contre l'autre. Je trouve ce paysage sombre et inquiétant. "C'est beau...", chuchotte t-elle. Je la serre fort contre moi, un soupir de détente s'échappe... 
 
 ## Ni d'accord, ni pas d'accord
 
@@ -16,9 +16,9 @@ Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pi
 
 > "Et si on allait au musée, c'est super intéressant et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
 
-> "J'ai l'impression que ce que tu as fais là n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
+> "Ce que tu as fais là, franchement, ce n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
 
-> "Je la trouve très intelligente et pertinente dans ce qu'elle dit." "Tout à fait d'accord". 
+> "Elle est très intelligente et pertinente dans ce qu'elle dit." "Tout à fait d'accord". 
 
 Dans tous les exemples çi dessus, j'ai illustré des débats relatifs à l'utilisation d'adjectifs: *beau*, *intéressant*, *bien*, *intelligent*. 
 
@@ -38,11 +38,13 @@ Il me semble que:
 
 **Est-ce que tu ne sous-entendrais pas qu'il faille abandonner le débat, les échanges, au détriment d'actes plus essentiels?**
 
-Tout dépend de cet **essentiel** que tu souhaites. 
-C'est un truc des tripes, qui passe par le coeur et la tête. 
-Je trouve bon de parfois de se poser de ce qui est essentiel pour moi, autant que de naturellement le ressentir au long de la journée. 
-Tendresse, repos, qualité des relations, enthousiasme partagé, du temps pour te retrouver, ... 
-Ou alors si ton fils vient te voir et dit "papa, papa j'ai trouvé des fourmis violet", tu peux lui dire "voyons, ça n'existe pas les fourmis violet" ou ...... et ça c'est à toi de l'écrire.
+Dans le language, on dit souvent qu'un acte est **essentiel**, mais on oublie de dire **essentiel** pour quoi.
+
+Les débats, les échanges peuvent être des actes essentiels dans de nombreuses circonstances. Par exemple pour affuter notre vision du monde, lorsque nous sommes avec des amis que nous n'avons pas vu depuis longtemps, lorsque nous construisons un projet collectif ou encore un milliers de circonstances. 
+
+Et pourtant... Pour te donner à nouveau un exemple tous les débats, échanges, dans un groupe ne sont pas **essentiels** pour faire avancer un projet collectif; souvenons nous de tous ces individus qui prennent la parole plus que nécessaire. 
+
+> Minuit la vraie luminière, l'aube n'est pas claire. *Hokyozanmai*
 
 ## Fermeture
 
