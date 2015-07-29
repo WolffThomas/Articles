@@ -1,6 +1,6 @@
 ## Aspirations profondes
 
-Je pourrais donner milles et unes raisons qui me pousseraient à écrire ces lignes.
+> Je pourrais donner milles et unes raisons qui me pousseraient à écrire ces lignes.
 La raison profonde qui me pousse à le faire est de poser une vision que je ressens au fond de moi, complexe et que je n'ai jamais pris le temps d'écrire.
 J'aspire pour l'instant à l'écrire, à la poser, sans vraiment savoir où cela m'amenera. 
 
