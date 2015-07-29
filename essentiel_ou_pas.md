@@ -17,6 +17,8 @@ Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profond
 
 ## Besoins fondamentaux
 
+### Oui / *mais*!
+
 * Manger / *un besoin ?*
 * Besoin de manger / *ah oui tout le temps ?*
 * Besoin de manger régulièrement / *qui-quoi ?*
@@ -27,3 +29,5 @@ Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profond
 * *et je pourrais le dire de nombre de manières différentes encore*
 
 > Dans ma vision, je suppose que les besoins sont des signaux lorsqu'il y a un déséquilibre de l'organisme. Un besoin se manifeste à mon sens comme un tension, engendrant souvent des actions. L'organisme, que j'imagine comme un système complexe, semble suivre son corps, dicté par les lois de la génétique et de l'environnement avec lequel il est en interaction. Lorsque le manque de repos se fait vraiment sentir, difficile d'apprendre. Veillissants, parfois isolés et sans échanges avec d'autres humains, peuvent nous ouvrir la porte de l'imaginaire et de la paranoia. Les besoins semblent très différents au cours d'une journée, alors que dire en fonction de l'âge et des besoins différents entre le même individu lorsqu'il a 3 ans et lorsqu'il en a 30. 
+
+
