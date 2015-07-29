@@ -37,17 +37,24 @@ Un besoin se manifeste à mon sens comme un tension, ressentie ou non de manièr
 
 ### Et *donc*
 
-> Un ami, aussi étudiant en psychologie me détaillait deux classifications célèbres sur justement les besoins fondamentaux. Ses mains tremblaient plus que d'habitude, des cernes se devinaient sous ses yeux, sa pensée et sa parole déviaient de plus en plus régulièrement du thème initial de discussion. Il semblait nerveux. 
-* "Et toi, là maintenant, de quoi as tu fondamentalement besoin?" le questionnai-je.
-* "De t'expliquer ces classifications" 
-* "Donc c'est un besoin fondamental de m'expliquer ça, là maintenant tout de suite?" 
-* "Non" 
-* "De quoi as tu besoin là maintenant tout de suite" 
-* "... de repos... est-ce que ça t'irait qu'on reprenne la discussion demain?"
-* sourire 
+** En apparence, alors que ... **
 
+> Un ami, aussi étudiant en psychologie me détaillait deux classifications célèbres sur justement les besoins fondamentaux. Ses mains tremblaient plus que d'habitude, des cernes se devinaient sous ses yeux, sa pensée et sa parole déviaient de plus en plus régulièrement du thème initial de discussion. Il semblait nerveux. "Et toi, là maintenant, de quoi as tu fondamentalement besoin?" le questionnai-je. "De t'expliquer ces classifications!" "Donc c'est un besoin fondamental de m'expliquer ça, là maintenant tout de suite?" "Non" "De quoi as tu besoin là maintenant tout de suite" "... de dormir, vraiment... est-ce que ça t'irait qu'on reprenne la discussion demain?" **sourire**
 
+A mon avis, comprendre ce dont a profondément besoin, au moment où la tension apparaît, c'est éviter de se perdre.
 
+** Et vous, votre définition des besoins fondamentaux **
+
+[Henderson](https://fr.wikipedia.org/wiki/Quatorze_besoins_fondamentaux_selon_Virginia_Henderson), [Maslow](https://fr.wikipedia.org/wiki/Pyramide_des_besoins), le bouddhisme, et tant d'autres, ont proposé leurs classifications des besoins fondamentaux. 
+
+De mon point de vue, voici quelques besoins fondamentaux que je considère fondamentaux **pour** moi:
+
+* prendre régulièrement le temps de philosopher entre ce qui est essentiel et ce qui ne l'est pas
+* manger, boire, me reposer, me détendre
+* echanger avec moi même et avec les autres sur mes représentations du monde
+* être ouvert à l'exploration et à l'apprentissage continu
+* pouvoir être soutenu par d'autres dans des situations difficiles
+* ... 
 
 
 
