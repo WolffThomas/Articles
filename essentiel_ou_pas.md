@@ -34,6 +34,7 @@ Un besoin se manifeste à mon sens comme un tension, ressentie ou non de manièr
 * Lorsque le manque de repos se fait vraiment sentir, difficile d'apprendre. 
 * Veillissants, parfois isolés et sans échanges avec d'autres humains, nous pouvons nous perdre dans la fabulation et la paranoia
 * Les besoins semblent très différents au cours d'une journée, alors que dire en fonction de l'âge et des besoins différents entre le même individu lorsqu'il a 3 ans et lorsqu'il en a 30. 
+* Après une journée mouvementée j'aspire au repos, après une nuit paisible j'aspire au mouvement. 
 
 ### Et *donc*
 
@@ -49,11 +50,13 @@ A mon avis, comprendre ce dont a profondément besoin, au moment où la tension 
 
 > De mon point de vue, voici quelques besoins fondamentaux que je considère fondamentaux **pour** moi: prendre régulièrement le temps de prendre du recul sur le sens de mes actions, prendre régulièrement le temps de me réjouir, manger et boire suffisament, me reposer correctement, passer régulièrement du temps avec ceux que j'aime. 
 
-Et **vous**, c'est surtout ça l'histoire d'après moi!
+Et **vous**? c'est surtout ça l'histoire d'après moi!
 
 ## Aspirations profondes
 
-Mes 
+Parmis les aspirations que j'ai en écrivant ces textes, c'est tout d'abord d'écrire pour poser ce que je ressens au fond de moi, et en second temps d'oser la soumettre à d'autres pour échanger dessus, à la fois pour engendrer des liens amicaux et pour épurer ma propre manière de voir les choses. 
+
+A cet instant, j'ai surtout l'aspiration de poser quelque chose qui est complexe en moi, je ne sais pas trop pourquoi je le fais. 
 
 ### Epurer les aspirations
 
@@ -72,6 +75,8 @@ Mes
 **Les désirs vains**
 
 > en vouloir toujours plus (ce qui est contraire à la nature), soif de pouvoir, soif de posséder, soif des honneurs. Epicure met en avant que ce type de désirs demande énormément d'agitation pour être maintenus, et ne provoque pas de réel bonheur chez l'individu, mais plus de courtes périodes de satisfaction - si tant est que l'individu atteind son but. 
+
+
 
 
 
