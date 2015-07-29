@@ -1,6 +1,6 @@
 # Essentiel
 
-> Pour moi, un exemple d'acte essentiel est de prendre le temps de réfléchir à ce qui me semble essentiel, de prendre régulièrement de l'altitude, et par la suite de m'absorber pleinement dans les actions.
+> Pour moi, un exemple d'acte essentiel est de prendre le temps de réfléchir à ce qui me semble essentiel, de prendre régulièrement de l'altitude, et par la suite de m'absorber pleinement dans les actions. Lorsque je suis exténué sur une longue période, j'ai besoin de partir de la ville et de passer une semaine à la montagne. Lorsque je me disperse, j'ai besoin de prendre quelques respirations pour me reconcentrer.
 
 Lorsque je dis « acte essentiel », j'entends naturellement au fond de moi « acte plus essentiel qu'un autre acte que j'aurai pu faire, par rapport à cette situation, ... ». 
 
@@ -36,6 +36,17 @@ Un besoin se manifeste à mon sens comme un tension, ressentie ou non de manièr
 * Les besoins semblent très différents au cours d'une journée, alors que dire en fonction de l'âge et des besoins différents entre le même individu lorsqu'il a 3 ans et lorsqu'il en a 30. 
 
 ### Et *donc*
+
+> Un ami, aussi étudiant en psychologie me détaillait deux classifications célèbres sur justement les besoins fondamentaux. Ses mains tremblaient plus que d'habitude, des cernes se devinaient sous ses yeux, sa pensée et sa parole déviaient de plus en plus régulièrement du thème initial de discussion. Il semblait nerveux. 
+* "Et toi, là maintenant, de quoi as tu fondamentalement besoin?" le questionnai-je.
+* "De t'expliquer ces classifications" 
+* "Donc c'est un besoin fondamental de m'expliquer ça, là maintenant tout de suite?" 
+* "Non" 
+* "De quoi as tu besoin là maintenant tout de suite" 
+* "... de repos... est-ce que ça t'irait qu'on reprenne la discussion demain?"
+* sourire 
+
+
 
 
 
