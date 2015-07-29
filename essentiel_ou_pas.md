@@ -43,18 +43,38 @@ Un besoin se manifeste à mon sens comme un tension, ressentie ou non de manièr
 
 A mon avis, comprendre ce dont a profondément besoin, au moment où la tension apparaît, c'est éviter de se perdre.
 
-** Et vous, votre définition des besoins fondamentaux **
+**Et vous, votre définition des besoins fondamentaux?**
 
 [Henderson](https://fr.wikipedia.org/wiki/Quatorze_besoins_fondamentaux_selon_Virginia_Henderson), [Maslow](https://fr.wikipedia.org/wiki/Pyramide_des_besoins), le bouddhisme, et tant d'autres, ont proposé leurs classifications des besoins fondamentaux. 
 
-De mon point de vue, voici quelques besoins fondamentaux que je considère fondamentaux **pour** moi:
+> De mon point de vue, voici quelques besoins fondamentaux que je considère fondamentaux **pour** moi: prendre régulièrement le temps de prendre du recul sur le sens de mes actions, prendre régulièrement le temps de me réjouir, manger et boire suffisament, me reposer correctement, passer régulièrement du temps avec ceux que j'aime. 
 
-* prendre régulièrement le temps de philosopher entre ce qui est essentiel et ce qui ne l'est pas
-* manger, boire, me reposer, me détendre
-* echanger avec moi même et avec les autres sur mes représentations du monde
-* être ouvert à l'exploration et à l'apprentissage continu
-* pouvoir être soutenu par d'autres dans des situations difficiles
-* ... 
+Et **vous**, c'est surtout ça l'histoire d'après moi!
+
+## Aspirations profondes
+
+Mes 
+
+### Epurer les aspirations
+
+#### L'invitation d'Epicure
+
+*Epicure* [-342;-270] parlait de trois types de désirs:
+
+**Les désirs naturels et nécessaires**
+
+> la faim, la soif, le repos, mais aussi la diététique des désirs (liée d'après lui au bonheur, un désir naturel et nécessaire),.... Ne pas les prendre en compte conduit à une douleur réelle. 
+
+**Les désirs naturels mais non nécessaires**
+
+> les désirs sexuels, de poésie, esthétiques, ... D'après Epicure, les suivre provoquerait plus d'agitation que de véritable bonheur. Pour prendre la métaphore d'un verre de vin, Epicure recommandrait de ne pas le désirer, mais de le savourer pleinement si on nous le proposait. Epicure rapproche le bonheur de la paix de l'âme, ou ataraxie. 
+
+**Les désirs vains**
+
+> en vouloir toujours plus (ce qui est contraire à la nature), soif de pouvoir, soif de posséder, soif des honneurs. Epicure met en avant que ce type de désirs demande énormément d'agitation pour être maintenus, et ne provoque pas de réel bonheur chez l'individu, mais plus de courtes périodes de satisfaction - si tant est que l'individu atteind son but. 
+
+
+
 
 
 
