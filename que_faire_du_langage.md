@@ -38,11 +38,7 @@ Il me semble que:
 
 **Est-ce que tu ne sous-entendrais pas qu'il faille abandonner le débat, les échanges, au détriment d'actes plus essentiels?**
 
-Dans le language, on dit souvent qu'un acte est **essentiel**, mais on oublie de dire **essentiel** pour quoi.
-
-Les débats, les échanges peuvent être des actes essentiels dans de nombreuses circonstances. Par exemple pour affuter notre vision du monde, lorsque nous sommes avec des amis que nous n'avons pas vu depuis longtemps, lorsque nous construisons un projet collectif ou encore un milliers de circonstances. 
-
-Et pourtant... Pour te donner à nouveau un exemple tous les débats, échanges, dans un groupe ne sont pas **essentiels** pour faire avancer un projet collectif; souvenons nous de tous ces individus qui prennent la parole plus que nécessaire. 
+Peut être. La suite dans *actes essentiels*.
 
 > Minuit la vraie lumière, l'aube n'est pas claire. **Hokyozanmai**
 
