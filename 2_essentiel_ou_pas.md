@@ -2,9 +2,12 @@
 
 # Essentiel ?
 
-Pour moi, **essentiel** pour moi renvoie à des actes faisant réponse à des **besoins fondamentaux** ou des **aspirations profondes**. 
+> Pour moi, **essentiel** pour moi renvoie à des actes faisant réponse à des **besoins fondamentaux** ou des **aspirations profondes**. Pour moi, il est essentiel de ne pas définir ce qui est essentiel de manière figer, comme une religion, et ceci pour nombre de raisons et d'observations. Par contre, je suppose dans ma vie comme essentiel le fait de prendre régulièrement du temps d'échanger avec moi même, dans mon couple, ou avec les collègues de ce qui leur semble essentiel. 
 
-> Je n'imagine pas trop parler d'un acte essentiel comme une religion. La [subjectivité](http://www.multibao.org/wolffthomas/articles/1_subjectivite_et_essentiel.md) me semble régner, tout particulièrement lorsque nous parlons de ce qui nous semble plus important - moins important, ou de plus essentiel -moins essentiel.
+* [Besoins fondamentaux ... ou pas?](http://www.multibao.org/wolffthomas/articles/3_besoins_fondamentaux_ou_pas.md)
+*  [Aspirations profondes ... quoi ?](http://www.multibao.org/wolffthomas/articles/4_polir_les_aspirations.md)
+
+## Une histoire d'échelle? 
 
 ### Essentiel, vu à l'échelle individuelle
 
@@ -25,7 +28,9 @@ Pour moi, **essentiel** pour moi renvoie à des actes faisant réponse à des **
 * Un corps si possible en bonne santé, manger de la nourriture de qualité, boire régulièrement, respirer... 
 * Pour pouvoir tous nous exprimer, il est essentiel que tout le monde veille à l'équité de parole
 
-Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profonde ? Qu'est ce qui est essentiel? A mon avis, à chacun de nous de voir.
+Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profonde ? Qu'est ce qui est essentiel? 
+
+A mon avis, à chacun de nous de voir. Et heureusement pour ...
 
 
 
