@@ -1,7 +1,5 @@
 > Devant moi, le soleil se couche se pose sur la mer légèrement agitée. Le clapotis des vagues me berce et ma pensée s'échappe. Je viens souvent m'assoir ici lorsque j'ai besoin de prendre du recul, lorsque j'ai besoin d'air. Alors, ce type d'acte est-il essentiel? Pour moi, de temps en temps, oui.
 
-![Vagues](http://img2.hebus.com/hebus_2012/11/10/preview/1352546939_50559.jpg)
-
 # Essentiel ?
 
 > Pour moi, **essentiel** pour moi renvoie à des actes faisant réponse à des **besoins fondamentaux** ou des **aspirations profondes**. Pour moi, il est essentiel de ne pas définir ce qui est essentiel de manière figer, comme une religion, et ceci pour nombre de raisons et d'observations. Par contre, je suppose dans ma vie comme essentiel le fait de prendre régulièrement du temps d'échanger avec moi même, dans mon couple, ou avec les collègues de ce qui leur semble essentiel. 
