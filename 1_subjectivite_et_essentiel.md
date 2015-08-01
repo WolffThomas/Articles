@@ -34,7 +34,7 @@ Il me semble que:
 * *ça va marcher* signifie que tu supposes que ça va marcher 
 * le bruit du vent dans les arbres n'a pas de nom, à moins que je le nomme
 
-##Actes essentiels 
+## Actes essentiels 
 
 ### Et donc ... 
 
