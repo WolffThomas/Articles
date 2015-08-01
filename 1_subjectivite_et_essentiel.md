@@ -36,9 +36,11 @@ Il me semble que:
 
 ##Actes essentiels 
 
-**Est-ce que tu ne sous-entendrais pas qu'il faille abandonner le débat, les échanges, au détriment d'actes plus essentiels?**
+### Et donc ... 
 
-Peut être. La suite dans *actes essentiels*.
+* *je suis frigorifiée* signifie qu'elle est frigorifiée, même si je ne le suis pas. Maintenant qu'elle l'a dit, qu'est ce que je fais?
+* *ça va marcher* signifie que tu supposes que ça va marcher. De mon coté, je viens de remarquer ton enthousiasme et ta volonté que ça marche. Et maintenant, qu'est-ce que je fais? 
+* *j'ai peur* ... et donc ? 
 
 > Minuit la vraie lumière, l'aube n'est pas claire. **Hokyozanmai**
 
