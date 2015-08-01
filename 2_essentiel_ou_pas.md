@@ -1,6 +1,6 @@
 > Devant moi, le soleil se couche se pose sur la mer légèrement agitée. Le clapotis des vagues me berce et ma pensée s'échappe. Je viens souvent m'assoir ici lorsque j'ai besoin de prendre du recul, lorsque j'ai besoin d'air. Alors, ce type d'acte est-il essentiel? Pour moi, de temps en temps, oui.
 
-![Vagues](http://www.routard.com/images_contenu/communaute/Photos/publi/105/pt104080.jpg)
+![Vagues](http://img2.hebus.com/hebus_2012/11/10/preview/1352546939_50559.jpg)
 
 # Essentiel ?
 
