@@ -28,7 +28,6 @@
 
 * Assis sur le banc d'un parc, un mâle rouge gorge se pose au devant et chante. Ma pensée s'évade, rêvasseries au soleil
 * Un corps si possible en bonne santé, manger de la nourriture de qualité, boire régulièrement, respirer... 
-* Pour pouvoir tous nous exprimer, il est essentiel que tout le monde veille à l'équité de parole
 
 Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profonde ? Qu'est ce qui est essentiel? 
 
