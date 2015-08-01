@@ -1,4 +1,6 @@
-> Devant moi, un coucher de soleil magnifique se pose sur la mer légèrement agitée. Le clapotis de l'eau me berce et ma pensée s'échappe. Je viens souvent m'assoir ici lorsque j'ai besoin de prendre du recul, lorsque j'ai besoin d'air. Alors, ce type d'acte est-il essentiel?
+> Devant moi, le soleil se couche se pose sur la mer légèrement agitée. Le clapotis des vagues me berce et ma pensée s'échappe. Je viens souvent m'assoir ici lorsque j'ai besoin de prendre du recul, lorsque j'ai besoin d'air. Alors, ce type d'acte est-il essentiel? Pour moi, de temps en temps, oui.
+
+![Vagues](http://img.over-blog.com/600x375/4/30/82/61/1774-couche-de-soleil-WallFizz-1-.jpg)
 
 # Essentiel ?
 
