@@ -2,7 +2,9 @@
 
 # Essentiel ?
 
-Lorsque je dis « acte essentiel », j'imagine au fond de moi qu'un acte que je juge essentiel à ce moment là, c'est parce que je l'imagine plus essentiel à ce moment là que les autres actes que j'aurais pu faire. De même, je n'imagine pas le mot **essentiel** seul, mais tente toujours de préciser **c'est essentiel pour ceci ou cela, dans cette situation là**. 
+Pour moi, **essentiel** pour moi renvoie à des actes faisant réponse à des **besoins fondamentaux** ou des **aspirations profondes**. 
+
+> Je n'imagine pas trop parler d'un acte essentiel comme une religion. La [subjectivité](http://www.multibao.org/wolffthomas/articles/1_subjectivite_et_essentiel.md) me semble régner, tout particulièrement lorsque nous parlons de ce qui nous semble plus important - moins important, ou de plus essentiel -moins essentiel.
 
 ### Essentiel, vu à l'échelle individuelle
 
@@ -19,14 +21,11 @@ Lorsque je dis « acte essentiel », j'imagine au fond de moi qu'un acte que j
 
 ## Définir ce qui est essentiel ? 
 
-C'est 
-*Essentiel pour moi renvoie à des actes faisant réponse à des **besoins fondamentaux** ou des **aspirations profondes**.* 
-
 * Assis sur le banc d'un parc, un mâle rouge gorge se pose au devant et chante. Ma pensée s'évade, rêvasseries au soleil
 * Un corps si possible en bonne santé, manger de la nourriture de qualité, boire régulièrement, respirer... 
 * Pour pouvoir tous nous exprimer, il est essentiel que tout le monde veille à l'équité de parole
 
-Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profonde ? Qu'est ce qui est essentiel? 
+Qu'est-ce qui est de l'ordre d'un besoin fondamental ou d'une aspiration profonde ? Qu'est ce qui est essentiel? A mon avis, à chacun de nous de voir.
 
 
 
