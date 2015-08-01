@@ -30,7 +30,7 @@ Il me semble que:
 
 > "Elle est très intelligente et pertinente dans ce qu'elle dit." "Tu trouves?"
 
-Dans tous les exemples çi dessus, j'ai illustré des débats relatifs à l'utilisation d'adjectifs: *beau*, *intéressant*, *bien*, *intelligent*. 
+Dans tous les exemples çi dessus, j'ai illustré des débats relatifs à l'utilisation d'adjectifs: *beau*, *intéressant*, *bien*, *intelligent*.
 
 Il me semble très simple de se perdre dans un débat lorsque nous utilisons des adjectifs. En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
 
@@ -40,6 +40,7 @@ Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le ra
 
 Lorsque tu me dis "ça va marcher", je pourrais te répondre "c'est ce que tu supposes". Mais est-ce vraiment pertinent de te répondre ça? Est-ce mon intention de peut-être briser ton enthousiasme?
 
+## Qu'y a t-il de plus simple que cela? 
+
 > Minuit la vraie lumière, l'aube n'est pas claire. **Hokyozanmai**
 
-## Qu'y a t-il de plus simple que cela? 
