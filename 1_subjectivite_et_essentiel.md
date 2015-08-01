@@ -36,7 +36,9 @@ Il me semble que:
 
 Dans Les 4 exemples çi dessus, j'ai illustré des débats relatifs à l'utilisation d'adjectifs: *beau*, *intéressant*, *bien*.
 
-Il me semble très simple de se lancer un débat vain lorsque nous utilisons des adjectifs. En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. Pourquoi chercher à définir une seule réalité lorsque l'autre nous présente son point de vue?
+Il me semble très simple de se lancer un débat vain lorsque nous utilisons des adjectifs. 
+
+Pourquoi chercher à définir une seule réalité lorsque l'autre nous présente son point de vue? En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
 
 ## Ce faisant, je prends la résolution d'abandonner tout agitation vaine pour me vouer à des actes essentiels.
 
