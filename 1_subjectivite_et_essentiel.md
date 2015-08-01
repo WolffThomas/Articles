@@ -1,7 +1,7 @@
 > Je suppose que tout ce que je pense et dis est supposition.
 > Et je le suppose de même pour les autres. 
 > Je suppose aussi notre agitation souvent vaine à tenter de définir le vrai du faux.
-> Ce faisant, je prends la résolution d'abandonner tout agitation vaine pour me vouer à des actes essentiels.
+> Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
 > Qu'y a t-il de plus simple que cela? 
 
 ## Ouverture
@@ -40,7 +40,7 @@ Il me semble très simple de se lancer un débat vain lorsque nous utilisons des
 
 Pourquoi chercher à définir une seule réalité lorsque l'autre nous présente son point de vue? En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
 
-## Ce faisant, je prends la résolution d'abandonner tout agitation vaine pour me vouer à des actes essentiels.
+## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
@@ -49,4 +49,6 @@ Lorsque tu me dis "ça va marcher", je pourrais te répondre "c'est ce que tu su
 Lorsque tu me dis "je t'aime", ...
 
 ## Qu'y a t-il de plus simple que cela? 
+
+> Qu'y a t-il de plus simple que cela, pour moi.
 
