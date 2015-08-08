@@ -19,9 +19,9 @@ Il me semble que:
 
 ## Et je le suppose de même pour les autres. 
 
-* *dieu est* signifie peut-être que tu supposes dieu
-* *ça va marcher* signifie peut-être que tu supposes que ça va marcher 
-* *c'est ma subjectivité!* signifie peut-être que tu considères que tu as une subjectivité qui t'es propre
+* *dieu est* pourrait signifier que tu supposes dieu
+* *ça va marcher* pourrait signifier que tu supposes que ça va marcher 
+* *c'est ma subjectivité!* pourrait signifier que tu considères que tu as une subjectivité qui t'es propre
 
 ## Je suppose aussi notre agitation souvent vaine à tenter de définir le vrai du faux.
 
@@ -29,15 +29,15 @@ Il me semble que:
 
 > "J'ai froid." "Mais le radiateur est sur 30°C!"
 
-> "C'est **beau**...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt **inquiétant** comme paysage..."
+> "C'est beau...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt inquiétant comme paysage..."
 
-> "Et si on allait au musée, c'est super **intéressant** et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a **rien d'intéressant** là dedans on l'a déjà fait". 
+> "Et si on allait au musée, c'est super intéressant et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
 
-> "Ce que tu as fais là, franchement, ce n'est pas **bien**." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
+> "Ce que tu as fais là, franchement, ce n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
 
 > "Mais puisque je te dis que j'ai besoin de croire en quelque chose pour pouvoir avancer! J'ai besoin de croire, même si c'est temporaire!" "Ce n'est que des suppositions, et puis c'est des envies!"
 
-## Ce faisant, je prends la résolution d'abandonner toute agitation **vaine** pour me vouer à des actes **essentiels**.
+## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
@@ -49,12 +49,7 @@ Lorsque tu me dis "je t'aime", ...
 
 ## Qu'y a t-il de plus simple que cela? 
 
-Qu'y a t-il de plus simple que cela, pour moi, pour l'instant? 
-
-> 
-Rien ne dit
-dans le chant de la cigale
-qu’elle est près de sa fin
-
-
+* Un vieil étang 
+Une grenouille saute 
+Des sons d'eau * 
 
