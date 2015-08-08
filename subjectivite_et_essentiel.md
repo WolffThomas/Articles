@@ -2,7 +2,7 @@
 > Et je le suppose de même pour les autres. 
 > Je suppose aussi notre agitation souvent vaine à tenter de définir le vrai du faux.
 > Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
-> Qu'y a t-il de plus simple que cela? 
+> Comment considérer cette pensée? 
 
 ## Ouverture
 
@@ -47,9 +47,8 @@ Lorsque tu me dis "ça va marcher", je pourrais te répondre "c'est ce que tu su
 
 Lorsque tu me dis "je t'aime", ...
 
-## Qu'y a t-il de plus simple que cela? 
+## Comment considérer cette pensée ? 
 
-* Un vieil étang 
-Une grenouille saute 
-Des sons d'eau * 
+Aucune idée. 
 
+> Un vieil étang. Une grenouille saute. Des sons d'eau. 
