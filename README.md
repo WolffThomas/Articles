@@ -1,6 +1,6 @@
 # Articles
 
-Bonjour. Ce dépôt est voué à une expérience.
+> Bonjour. Ce dépôt est voué à une expérience.
 Vous y trouverez peut-être plusieurs articles, s'il n'y en a plus qu'un seul c'est que les précédents ont été supprimés. 
 J'y présente l'état actuel de certaines de ce que je considère comme mes "suppositions". 
 Considérant que je ne peux que difficilement me rendre compte de mes croyances, considérant ces dernières comme la réalité, je décide d'échanger en relation 1 x 1 sur ces articles.
