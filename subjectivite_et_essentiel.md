@@ -19,8 +19,9 @@ Il me semble que:
 
 ## Et je le suppose de même pour les autres. 
 
-* *dieu est* signifie que tu supposes dieu
-* *ça va marcher* signifie que tu supposes que ça va marcher 
+* *dieu est* signifie peut-être que tu supposes dieu
+* *ça va marcher* signifie peut-être que tu supposes que ça va marcher 
+* *c'est ma subjectivité!* signifie peut-être que tu considères que tu as une subjectivité qui t'es propre
 
 ## Je suppose aussi notre agitation souvent vaine à tenter de définir le vrai du faux.
 
@@ -28,19 +29,15 @@ Il me semble que:
 
 > "J'ai froid." "Mais le radiateur est sur 30°C!"
 
-> "C'est beau...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt inquiétant comme paysage..."
+> "C'est **beau**...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt inquiétant comme paysage..."
 
-> "Et si on allait au musée, c'est super intéressant et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
+> "Et si on allait au musée, c'est super **intéressant** et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
 
-> "Ce que tu as fais là, franchement, ce n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
-
-Dans Les 4 exemples çi dessus, j'ai illustré des débats relatifs à l'utilisation d'adjectifs: *beau*, *intéressant*, *bien*.
-
-Il me semble très simple de se lancer un débat vain lorsque nous utilisons des adjectifs. 
-
-Pourquoi chercher à définir une seule réalité lorsque l'autre nous présente son point de vue? En effet, si j'utilisais le mot "intelligent" je ferais référence à ma notion de ce qu'est l'intelligence, et de mon référentiel propre de qui est plus intelligent et de qui l'est moins. 
+> "Ce que tu as fais là, franchement, ce n'est pas **bien**." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
 
 ## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
+
+> Minuit la vraie lumière, l'aube n'est pas claire. 
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
