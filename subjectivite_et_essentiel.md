@@ -29,17 +29,17 @@ Il me semble que:
 
 > "J'ai froid." "Mais le radiateur est sur 30°C!"
 
-> "C'est **beau**...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt inquiétant comme paysage..."
+> "C'est **beau**...", chuchotte t-elle. "C'est pas beau, c'est même franchement pas beau. C'est plutôt **inquiétant** comme paysage..."
 
-> "Et si on allait au musée, c'est super **intéressant** et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a rien d'intéressant là dedans on l'a déjà fait". 
+> "Et si on allait au musée, c'est super **intéressant** et on y va jamais!" "Bof", répondit-il d'un air blasé, "il y a **rien d'intéressant** là dedans on l'a déjà fait". 
 
 > "Ce que tu as fais là, franchement, ce n'est pas **bien**." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
 
-## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
-
-> Minuit la vraie lumière, l'aube n'est pas claire. 
+## Ce faisant, je prends la résolution d'abandonner toute agitation **vaine** pour me vouer à des actes **essentiels**.
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
+
+Lorsque tu me dis "donc tu considères que tout est supposition?", je pourrais te répondre "c'est toi qui suppose ça" ou entrer dans un dialogue de fond car je doute que tout est supposition. 
 
 Lorsque tu me dis "ça va marcher", je pourrais te répondre "c'est ce que tu supposes". Mais est-ce vraiment pertinent de te répondre ça? Est-ce mon intention de peut-être briser ton enthousiasme?
 
