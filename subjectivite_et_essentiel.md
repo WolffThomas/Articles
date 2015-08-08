@@ -39,7 +39,7 @@ Il me semble que:
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
-Lorsque tu me dis "donc tu considères que tout est supposition?", je pourrais te répondre "c'est toi qui suppose ça" ou entrer dans un dialogue de fond car je doute que tout est supposition. 
+Lorsque tu me dis "tout est supposition pour moi, et toi?", je pourrais te répondre "j'en sais rien / oui / non", ou considérer cet instant comme une véritable invitation au dialogue et m'appliquer à te répondre. 
 
 Lorsque tu me dis "ça va marcher", je pourrais te répondre "c'est ce que tu supposes". Mais est-ce vraiment pertinent de te répondre ça? Est-ce mon intention de peut-être briser ton enthousiasme?
 
