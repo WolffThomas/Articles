@@ -47,5 +47,4 @@ Lorsque tu me dis "je t'aime", ...
 
 ## Qu'y a t-il de plus simple que cela? 
 
-> Qu'y a t-il de plus simple que cela, pour moi.
-
+> Qu'y a t-il de plus simple que cela, pour moi ? 
