@@ -35,7 +35,7 @@ Il me semble que:
 
 > "Ce que tu as fais là, franchement, ce n'est pas bien." "Tu me gonfles avec tes notions de bien et de mal; ça n'existe que dans ta tête." 
 
-> "Mais puisque je te dis que j'ai besoin de croire en quelque chose pour pouvoir avancer! J'ai besoin de croire, même si c'est temporaire!" "Ce n'est que des suppositions, et puis c'est des envies!"
+> "Mais puisque je te dis que j'ai besoin de croire en quelque chose pour pouvoir avancer! J'ai besoin de croire, même si c'est temporaire!" "Encore ton blabla pseudo-psycho..."
 
 ## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à l'essentiel
 
