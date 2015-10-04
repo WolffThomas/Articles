@@ -1,7 +1,7 @@
 > Je suppose que tout ce que je pense et dis est supposition.
 > Et je le suppose de même pour les autres. 
 > Je suppose aussi notre agitation souvent vaine à tenter de définir le vrai du faux.
-> Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
+> Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à l'essentiel.
 > Comment considérer cette pensée? 
 
 ## Ouverture
@@ -14,7 +14,7 @@ Alpes, mois d'avril. Océans de pics enneigés, herbe rase de haute altitude, pi
 
 Il me semble que: 
 * *je suis frigorifiée* signifie qu'elle est frigorifiée, même si je ne le suis pas 
-* *acte essentiel* signifie que je suppose un acte essentiel
+* *essentiel* signifie que je suppose que qu'une chose peut être plus essentielle qu'une autre
 * *tu es belle* signifie que je te trouve belle
 
 ## Et je le suppose de même pour les autres. 
@@ -37,7 +37,7 @@ Il me semble que:
 
 > "Mais puisque je te dis que j'ai besoin de croire en quelque chose pour pouvoir avancer! J'ai besoin de croire, même si c'est temporaire!" "Ce n'est que des suppositions, et puis c'est des envies!"
 
-## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à des actes essentiels.
+## Ce faisant, je prends la résolution d'abandonner toute agitation vaine pour me vouer à l'essentiel
 
 Lorsqu'elle me dit "je suis frigorifiée", je peux lui répondre "oui mais le radiateur est sur 30°C!" autant que la serrer contre moi pour la réchauffer ou encore aller lui déposer une couverture sur ses épaules.
 
@@ -51,4 +51,4 @@ Lorsque tu me dis "je t'aime", ...
 
 Aucune idée. 
 
-> Un vieil étang. Une grenouille saute. Des sons d'eau. 
+> Un vieil étang. Une grenouille saute. Des sons d'eau.
