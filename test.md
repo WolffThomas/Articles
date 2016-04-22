@@ -1,4 +1,4 @@
-### <span id="h.l33y3c6lurcm" class="anchor"><span id="h.2ejbsywn6dev" class="anchor"></span></span>5 Des rencontres pour booster les plus actifs
+### 5 Des rencontres pour booster les plus actifs
 
 <img src="media/image1.png" width="265" height="267" />
 
