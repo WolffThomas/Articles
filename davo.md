@@ -2,7 +2,8 @@
 
 > Construire avec vous des solutions à des problématiques collaboratives.
 
-*Nomasso* est une association collégiale. Venez prendre un café avec nous à Nantes, Bordeaux, Montpellier ou contactez nous par mail et tel. 
+*Nomasso* est une association collégiale. 
+Venez prendre un café avec nous à Nantes, Bordeaux, Montpellier ou contactez nous par [mail](mailto:daoud.alyssa@gmail.com) et tel. 
 
 ## Chantiers actuels
 
@@ -15,9 +16,9 @@
 
 ## Notre approche
 
-Pour nous, tout débute par une rencontre : contactez nous, échangeons, voyons si nous sommes intéressés pour collaborer ensemble. 
-On prend le temps de comprendre votre contexte et vos problématiques avant de parler solutions ; aussi nous ne répondrons que difficilement à des cahier de charges déjà bouclés
-Même si vous n'avez pas ou peu de ressources financières et que vous portez un projet citoyen à vocation sociale/environnementale, faisons connaissance.
+* Vous aimeriez nous soumettre un projet; tout commence par une rencontre. Contactez nous, échangeons et voyons si nous sommes intéressés pour collaborer ensemble. 
+* Le cahier des charges bouclé, dur dur. On préfère comprendre votre contexte et vos problématiques avant de définir des solutions. 
+* On soutient des projets et avant tout des individus dans lesquels on croit. 
 
 ## L'équipe
 
